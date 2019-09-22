@@ -7,4 +7,4 @@
 
 ## Online platform to invest in stocks, derivatives, mutual funds, and more
 
-![Image ](https://ibb.co/ftSC7J5)
+![Image ](https://cdn1.imggmi.com/uploads/2019/9/22/ccf5bd66c4504af905d73fca688eb294-full.png)
